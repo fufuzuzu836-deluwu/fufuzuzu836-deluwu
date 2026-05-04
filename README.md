@@ -1,5 +1,5 @@
 # 💫 About Me:
-Uwu<br>Topo gay<br>Kevin gay<br>Erick blanco<br>Erick negro <br>Uwu
+Uwu<br>Erick blanco<br>Erick negro <br>Uwu
 
 
 ## 🌐 Socials:
